@@ -1,4 +1,4 @@
-# Hey, I'm SHUGAŘ! 👋
+# Hey, I'm SHUGA! 👋
 
 💻 Computer Science Student
 
